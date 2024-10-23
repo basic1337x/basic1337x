@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @basic1337x
+- 👀 I’m interested in c+ python javascript lua 
+- 🌱 I’m currently learning c+
+- 📫 How to reach me jeanbee2211@gmail.com
